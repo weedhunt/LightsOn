@@ -1,1 +1,3 @@
 # LightsOn
+
+MACH BLOß KEIN BLÖDSINN!
